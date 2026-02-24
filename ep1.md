@@ -41,9 +41,20 @@ The tilapia jumps into the lap of Neel. Neel started to feel nausea suddenly he 
 
 ### Flashback
 
-A little 6 years old just beaten by his father for cussing his elder sister. He gets these sessions a lot because he has so many flaws in eyes of society.
-None sees that he also have and feels pain. And it can mess his life for a 6 years old. Just flaws and that leads him to some thing he don't like.
-No one really knows and not even realize how much this 6 years old kid carries in his heart.
+(when Neel was 6)
+[Obi the father of Neel]
+<br>
+Obi: Why are you cursing cousin. Do you even know what these curse words
+even mean?
+<br>
+(Beats him in his legs with a cloth hanger)
+<br>
+Neel: I will not do that again.
+<br>
+[He in his mind. Do you even know what she said to me? She is a scumbag]
+Obi: You are getting ill-mannered day by day. I should beat you more little boy.
+<br>
+[Neel in his mind: Do whatever you want without knowing the full story. Does anyone really care about what I feel? Nah ,they are all same - emotionless robots.]
 
 ### Present
 
@@ -53,10 +64,15 @@ Neel : I feel a bit weird right now.
 
 ### Flashback
 
-One day he had homeworks from his school. He cannot do it. He cannot find purpose of his studies so he never does it. Everyone says him to follow orders but he don't. He questions and he feels like everyone hates him for his questions.
-To some extend it is true. His mother cussed him a lot for not doing the homework properly.
+(When Neel was 8)
 <br>
-He grew bearing these pains with him none to share.He constantly failed in exams - just cause of not finding purpose to pass and no one makes him clear.
+[Neel's mother Rekha]
+<br>
+Rekha: This boy cannot even right alphabets at 8! I don't know my womb had grown a failure. I don't know why god is punishing me like that.
+<br>
+[Neel in his mind crying cause he cannot make her smile but became disappointment.]
+<br>
+(For a 8 year it was too much to carry)
 
 ### Present
 
@@ -68,14 +84,12 @@ Samira: Oh Shit! Neel! Neel!
 
 ### Flashback
 
-Being beat up every time he does something exceptional he never tried socializing. He thought that is wrong also. So he couldn't share anything to anyone.
+(When Neel was 11)
 <br>
-He feels like he is hated by everyone maybe he is.
-At a moment he was primmed that maybe he is a bad person. He is the one who does wrong stuff. He usually wonders why god made him this way. No one to share this stuff. He carries a lot.
+[Neel sitting on a bench near lake]
 <br>
-By 11 he started to believe that he is curse of god to his family. He is nothing but burden. He started to hate himself for that. He really started to think that everything bad in family is cause of him. He is bad person a low-intelligence guy being curse for the world and family.
-
-By 13 he tried to commit suicide but he met a friend- Samira. In the world where everyone hates him someone seems to at least listened to him what he said. Someone responded to what he Said. The only one had empathy for him.
+Neel(to himself):I am a disappointment for my family. I never bring peace to my family but all the bad. Maybe I came as a curse of God in this home.
+I kind of hate myself too much. The only reason I didn't commit suicide cause Samira is there.
 
 ### Present
 
@@ -85,10 +99,15 @@ Samira: Neel, Neel Wake up.
 
 ### Flashback
 
-Neel started to like Samira by 14 cause of her charming and being only one who at least nods when he speaks.
+<!-- Neel started to like Samira by 14 cause of her charming and being only one who at least nods when he speaks.
 <br>
 Neel had a hobby developed from 13 it is fishing. he started to fish every saturday. He goes in the Foy's lake with Samira and spends time with fishing rod and her. They argue a lot about if this time is when what fish can be caught.
+<br> -->
+
+(When Neel was 14)
+Neel: Samira, do you know you are the only one listens what I say. I mean you are only one who values me as human. For you I didn't committed suicide. I kind of like you by the moment. Why you value me? Ain't I a disappointment or a curse from god?
 <br>
+Samira: Shut up! You ain't a curse you are just a depressed human. And every human being should be valued. And what? suicide? Oh lord! I really pray for you.
 
 ### Present
 
