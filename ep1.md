@@ -44,7 +44,7 @@ The tilapia jumps into the lap of Neel. Neel started to feel nauseous; suddenly 
 (when Neel was 6)
 [Obi, the father of Neel]
 <br>
-Obi: Why are you cursing, cousin? Do you even know what these curse words
+Obi: Why are you cursing your cousin? Do you even know what these curse words
 Is it even mean?
 <br>
 (Beats him in his legs with a cloth hanger)
